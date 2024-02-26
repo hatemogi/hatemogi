@@ -5,3 +5,6 @@
 제주도🏝에 거주하며 바닷가에서 한적하게 쉬며 커피☕️ 마시는 것을 좋아합니다.
 
 [Medium](https://hatemogi.medium.com/)에 개발 관련한 글을 적기도 하고, [YouTube](https://www.youtube.com/channel/UCN5w8UN3Y7aXmsV5AsNpUpg)에도 개발 관련 영상을 올리고 있어요.
+
+2024년 이력서 업데이트
+https://cv.hatemogi.com/
